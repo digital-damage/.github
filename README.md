@@ -1,1 +1,1 @@
-Dedicared Penetration Testing Account.
+Dedicated Penetration Testing Account.
